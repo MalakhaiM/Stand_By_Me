@@ -12,3 +12,9 @@ So darlin', darlin', stand by me
 Oh, stand by me
 Oh, stand
 Stand by me, stand by me
+
+And, darlin', darlin', stand by me, oh stand by me.
+Oh, stand now, stand by me, stand by me.
+Whenever you're in trouble won't you stand by me, oh
+now stand by me, stand by me, stand by me,
+stand by me.
